@@ -3,31 +3,31 @@
 ***
   
 ### - 👋 Hi, I’m @FiJerry
-# Just call me FiJerry or Jerry
+# `Just call me FiJerry or Jerry`
   
 ***
    
-### - 👀 I’m interested in EVERYTHING
+### - 👀 I’m interested in `EVERYTHING`
   
 ***
    
 ### - 🌱 I’m currently learning CCCCC+++++
-# CCCCC+++++ AND JAVAAAAAA
+# `CCCCC+++++ AND JAVAAAAAA`
 
 ***
     
 ### - 💞️ I’m looking to collaborate on ............
-###### I don't know
+###### `I don't know`
  
 ***
    
 ### - 📫 How to reach me ？
-# Don't reach me before six in the evening!(QQMail:1301305188@qq.com)
+#` Don't reach me before six in the evening!(QQMail:1301305188@qq.com)`
   
 ***
   
 ### - 🀄 I'm Chinese!
-# I feel Proud!
+# `I feel Proud!`
 
 
 
